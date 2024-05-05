@@ -1,0 +1,1 @@
+Dedication,steadiness and truth!
